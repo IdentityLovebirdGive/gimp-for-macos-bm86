@@ -1,4 +1,4 @@
-# 
+# Gimp for macOS top Template - cloud sync and masking tools is the best Gimp for macOS template, featuring cloud sync and masking tools. Safe, efficient, and optimized for
 
 
 
